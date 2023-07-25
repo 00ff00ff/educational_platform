@@ -1,3 +1,3 @@
 # educational_platform
 
-![alt text](https://ibb.co/9WZwkFd)
+[url=https://ibb.co/9WZwkFd][img]https://i.ibb.co/x6Fmtpr/2.jpg[/img][/url]

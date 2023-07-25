@@ -1,3 +1,3 @@
 # educational_platform
 
-!(https://ibb.co/9WZwkFd)
+![alt](https://i.ibb.co/x6Fmtpr/2.jpg)
